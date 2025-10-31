@@ -35,4 +35,4 @@ I am always excited to collaborate, learn, and build something meaningful, espec
 
 ---
 
-⭐ *Thanks for visiting my profile! Check out my repositories below for more of my work.*
+⭐ *Check out my repositories below for more of my work.*
