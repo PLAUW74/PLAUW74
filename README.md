@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Nigel Goh
+# 👋 Hi, I'm Nigel
 ---
 
 ## 🧠 About Me
