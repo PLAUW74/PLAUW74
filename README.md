@@ -32,7 +32,7 @@ I am always excited to collaborate, learn, and build something meaningful, espec
 
 **Email:** [nigelgoh74@gmail.com](mailto:nigelgoh74@gmail.com)  
 **LinkedIn:** [Goh Jun Jie Nigel](https://www.linkedin.com/in/goh-jun-jie-nigel-60303b1a2/)
-
+**Portfolio:** [Programming & Art](https://nigel_goh.artstation.com/resume)
 
 ---
 
